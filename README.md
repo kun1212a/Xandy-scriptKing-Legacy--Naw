@@ -1,1 +1,0 @@
-# Xandy-scriptKing-Legacy--Naw
